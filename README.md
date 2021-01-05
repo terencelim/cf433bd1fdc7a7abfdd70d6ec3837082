@@ -1,0 +1,2 @@
+# cf433bd1fdc7a7abfdd70d6ec3837082
+Static aigelist
